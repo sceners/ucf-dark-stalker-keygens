@@ -5,6 +5,19 @@
 [Original package](https://defacto2.net/f/ac2a616)
 
 ```
+@X0FThirty Keygen Sourcecodes   *sOURCE pACK*
+@X0BThe pack for all those who  want to learn
+@X0Bhow to make a keygen, or just  wanna  see
+@X0Ball the sources in here.     (ASM/PAS/VB)
+@X0C─────────────-[Dark Stalker]─────────────
+@X09   ▄▄▄   ▄▄▄    ▄▄▄▄▄▄▄▄▄    ▄▄▄▄▄▄▄▄▄
+@X09   ███   ███    ███          ███▄▄▄
+@X09   ███▄  ███    ███▄         ███
+@X09   ▀▀▀▀▀▀▀▀▀    ▀▀▀▀▀▀▀▀▀    ▀▀▀
+@X0E─────────────────────────────────────────
+@X0B u N I T E D  c R Æ C K I N G  f O R C E
+@X0E[dos/win31/win95/sources]──────[oCT 1998]
+
                                                       ■
                                                   ▄▀
                           ▄                      ▐▌         ▄
